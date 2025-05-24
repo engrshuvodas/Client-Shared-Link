@@ -1,6 +1,7 @@
 # link-share
 
-https://download.cnet.com/microsoft-office-2021/3000-windows-microsoft-office-2021.html
+again full file : https://drive.google.com/drive/folders/10xFI8tvm1OJc2BoDDlh4EPwbRQIwapSH?usp=sharing
+Microsoft: https://download.cnet.com/microsoft-office-2021/3000-windows-microsoft-office-2021.html
 
 
 
