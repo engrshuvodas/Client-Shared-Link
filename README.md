@@ -3,7 +3,8 @@
 again full file : https://drive.google.com/drive/folders/10xFI8tvm1OJc2BoDDlh4EPwbRQIwapSH?usp=sharing </br>
 Microsoft: https://download.cnet.com/microsoft-office-2021/3000-windows-microsoft-office-2021.html
 
-
+wasender v3.5.0
+https://drive.google.com/file/d/1weSFzKkJL9ZDxN9uJeg0BY8MUFt33FYj/view?usp=drive_link
 
 
 <h2>⚠️ For Client Only</h2>
