@@ -15,4 +15,3 @@
 <p><strong>Thank you for understanding.</strong></p>
 
 
-https://youtu.be/2sN4dkzk_Rc?si=wSXQhAZ6NM1Jn0Jk
